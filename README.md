@@ -1,1 +1,1 @@
-# Tin-h-c-c-s-2---L-p-Tr-nh-C
+Tin học cơ sở 2
